@@ -1,6 +1,4 @@
-## The Juice
-
-##### Web developer, word writer, industrious lefty
+### The Juice:
 
 If my early educational choices were a D&D character, he'd be the idiot who spend all his XP on cross-class skills. I enjoy a colorful array of them, including [sports writing](https://lawlessrepublic.com/author/aandreason/), public speaking, and saying off-the-cuff puns. I have a so-so jump hook, but rebound like a jerk.
 
